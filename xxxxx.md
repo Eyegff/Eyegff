@@ -12,7 +12,7 @@ TinSoeOo 	09809809
 Chitphong Chitphong97
 TinSoeOo	09809800
 Toffyzx	Toffyzx
-Chitphong Sutsawat	Chitphong121140
+Chitphong Chitphong121140
 ธนพงศ์	Somrak
 ก๊อด	1122334455667788
 tanmung	121190tan
