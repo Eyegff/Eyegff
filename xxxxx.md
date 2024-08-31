@@ -9,7 +9,7 @@ Not	Chalermphon
 Jack	Theripper
 เสือเบ่ว	1997
 TinSoeOo 	09809809
-Chitphong Sutsawat	Chitphong97
+Chitphong Chitphong97
 TinSoeOo	09809800
 Toffyzx	Toffyzx
 Chitphong Sutsawat	Chitphong121140
